@@ -30,7 +30,7 @@ I love solving technical challenges, optimizing user experiences, and learning n
 ![image](https://github.com/user-attachments/assets/0644534a-af73-4d91-9154-c3d6d861b66b)
 ![image](https://github.com/user-attachments/assets/f160c7e0-16a9-43e1-8472-8dee3d85e4c8)
 
-##fun section
+## Fun Section
 ![image](https://github.com/user-attachments/assets/2224adac-a69c-4c73-8e84-da62c64dc506)
 
 
